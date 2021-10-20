@@ -1,7 +1,7 @@
 # Zokonar
 
 <br>
-<h5 align="center"><i>" I Learn from the mistakes of peoples whom I give advice - Blesslin Jerish R "</i></h5>
+<h5 align="center"><i>" I Learn from mistakes of people whom I advice - Blesslin Jerish R "</i></h5>
 
 <br>
 
